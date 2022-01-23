@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @giosampietro
 - 👀 Hypercraft
-- 🌱 giosampietro.xyz
+- 🌱 www.giosampietro.xyz
 - 📫 www.instagram.com/giosampietro
